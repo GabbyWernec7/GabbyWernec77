@@ -15,4 +15,4 @@ gabriellywernecsette@gmail.com
 
 @wernec_sette 📲
 
-<div class="tenor-gif-embed" data-postid="20360930" data-share-method="host" data-aspect-ratio="0.771875" data-width="100%"><a href="https://tenor.com/view/panda-love-gif-20360930">Panda Love Sticker</a>from <a href="https://tenor.com/search/panda+love-stickers">Panda Love Stickers</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+https://tenor.com/pt-BR/view/panda-love-gif-20360930
