@@ -15,4 +15,4 @@ gabriellywernecsette@gmail.com
 
 @wernec_sette 📲
 
-![panda-love](https://github.com/GabbyWernec7/GabbyWernec77/assets/171045881/47e9cb85-ba1f-4c71-b08a-bc44e0328c44) ![panda-hi](https://github.com/GabbyWernec7/GabbyWernec77/assets/171045881/ecb33879-c3b7-4ec8-b64a-59ca5f08671f)
+![panda-hi](https://github.com/GabbyWernec7/GabbyWernec77/assets/171045881/ecb33879-c3b7-4ec8-b64a-59ca5f08671f) ![panda-love](https://github.com/GabbyWernec7/GabbyWernec77/assets/171045881/47e9cb85-ba1f-4c71-b08a-bc44e0328c44)
