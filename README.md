@@ -15,4 +15,4 @@ gabriellywernecsette@gmail.com
 
 @wernec_sette 📲
 
-https://tenor.com/pt-BR/view/panda-love-gif-20360930
+![panda-love](https://github.com/GabbyWernec7/GabbyWernec77/assets/171045881/47e9cb85-ba1f-4c71-b08a-bc44e0328c44)
