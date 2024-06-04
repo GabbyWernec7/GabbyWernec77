@@ -1,4 +1,4 @@
-## BEM VINDO AO MEU PERFIL!💟🌠
+## BEM-VINDO AO MEU PERFIL!💟🌠
 
 - Meu nome é Gabrielly
 
